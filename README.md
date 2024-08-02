@@ -2,7 +2,7 @@
 
 AMD GPU. FPS Cap to 153. linkTest.js open in a maximized window of Sublime Text with around 20 blank lines below doc text. 
 
-Look at pronounsFemale line. Look at / internally pronounce "she","her" in that order. Now mirror, and mirror again. Exit on "she", looking down and then glancing up and down entire doc several times. Aim for 4 total from first top to bottom glance. top to bottom. bottom to top each count toward. So 2 full down then up.
+Look at pronounsFemale line. Look at / internally pronounce "she","her" in that order. Now mirror, and mirror over again about 5 times. Exit on "she", looking down and then glancing up and down entire doc several times. Aim for 4 total from first top to bottom glance. top to bottom. bottom to top each count toward. So 2 full down then up.
 
 Return to pronounsFemale. Read "she","her" once. Look to articles. Glance forwards over [], and as look "a" think "an" as look "an" think "a". Think =~= pronounce internally. Then as look comma in-between "she" "her", think "an".
 
