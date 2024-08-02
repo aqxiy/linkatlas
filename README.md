@@ -9,7 +9,7 @@ Return to pronounsFemale. Read "she","her" once. Look to articles. Glance forwar
 
 Try to point gaze around mStuff - cmsStuff, glance up to pets line, then over and over move up/down from pets to very bottom of doc.
 
-After 5 or so times, do "cat" & "dog" hypnosis process. Which is to look at / internally pronounce "cat","dog" with mirror component so "cat","dog","dog","cat","cat","dog" a total of 5 2 word reads. At this point, while looking at "dog", think "cat". Continue with 7 2 word reads. Finally, stop at "dog" 3 seconds. Now persist with mirrored 2 words reads at least 7x. Always start with saying "cat" when starting a new phase. 
+After 5 or so times, do "cat" & "dog" hypnosis process. Which is to look at / internally pronounce "cat","dog" with mirror component so "cat","dog","dog","cat","cat","dog" a total of 5 2 word reads. At this point, while looking at "dog", think "cat". Continue with 7 2 word reads. Finally, stop at "dog" 3 seconds. Now persist with mirrored 2 words reads at least 7x. Always start with saying "cat" when starting a new phase and exit on saying "cat". 
 
  
 Process A: 
