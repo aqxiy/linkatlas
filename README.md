@@ -22,4 +22,4 @@ Do process A with mStuff and cmStuff.
 Do process A with navNorth and navMaj.
 
 
-Use "dong gong song" & "Jax Lee Sin Irelia" along with various combinations among to help exit hypnosis, both while retaining the fps trick & without out, both with and without the document ahead of you. 
+Use "dong gong song" & "Jax Lee Sin Irelia" along with various combinations among to help exit hypnosis, both while retaining the fps trick & without out, both with and without the document ahead of you. Look up and down document while saying these. 
